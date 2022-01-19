@@ -18,7 +18,7 @@ Does this suggest there is another housing bubble? I'm not really sure. Prices a
 
 Ben Carlson makes a good case [against a bubble](https://awealthofcommonsense.com/2021/04/why-this-is-not-another-housing-bubble/). These seem to me like reasonable points, although that was written back in April, and prices have continued going bonkers since then.
 
-The limited supply angle makes a lot of sense to me given the data. But I would expect this shortage to rectify eventually and prices to lower as a result. When there is a supply shortage, there is good money to be made.
+The limited supply angle makes a lot of sense to me given the data. But I would expect this shortage to rectify eventually and prices to lower as a result. When there is a supply shortage, there is good money to be made by producing.
 
 There also might be other reasons prices increase. For example developing large homes instead of starter homes, in which case the index is comparing apples to larger apples. But I don't know much about those inputs and housing fundamentals in general.
 
